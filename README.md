@@ -1,6 +1,2 @@
 # example
-My awesome codebase
-drtghrdjghg
-gdrtjhgdrkhl
-hjbdtrhjskl
-jcyjcfyujc
+IAM A BAD BOY.....
